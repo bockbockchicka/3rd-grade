@@ -1,5 +1,5 @@
 # Red Sails to Capri
-## Capitulum secunda (II)
+## Capitulum secundum (II)
 1. Why cant Michele go to naples?  
 Beacause he is to busy.
 2. Why would the name capri,or goat,be appropriate for a mountainous island?  
@@ -40,4 +40,22 @@ What does mama mean?
 It means  it takes  more bravery to do what is right than do what exepected.  
 
 Why does angelo decide to go at noon to the cove?  
-Because there are no boats in the noon and nobody knows. 
+Because there are no boats in the noon and nobody knows.   
+
+## Capitulum nonum  
+
+What does that mean?  
+He had been waiting for things.  
+
+Why does michele ask if pietro can come too?  
+Because he wanted a freind with him.  
+## Capitulum decimum  
+
+What does this mean?  
+The plans were said so they decided to stop talking.  
+
+What did they each find?  
+Treasure, beauty and truth.  
+
+Of what was the journey just the beginning?  
+The whole town of capri wanted to see the cove.
